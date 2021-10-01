@@ -1,3 +1,3 @@
 Cleaning all
 
-Atualizando novamente
+Atualizando
